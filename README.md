@@ -1,2 +1,10 @@
-# Spooky-Night-Mansion
-oooo fnf mod 
+GO MANGO
+
+
+
+
+
+
+
+
+mod that took very long. and hello.
